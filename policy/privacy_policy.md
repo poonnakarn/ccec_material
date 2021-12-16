@@ -122,6 +122,6 @@ Bhumisiri Mangkhalanusorn Building, Fl.7
 1873 Rama IV Rd
 Pathum Wan, Pathum Wan District
 Bangkok 10330.
-Or you can contact us at email: poonnakarn@gmail.com
+Or you can contact us at email: poonnakarn.p@chulahospital.org
 
 This document was last updated on December 12, 2021
